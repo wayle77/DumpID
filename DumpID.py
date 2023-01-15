@@ -84,7 +84,7 @@ ________________________________________________
 DUMP FB BRO ✓
 INI SCRIPT GRATIS✓
 Scrip ini bukan crack melainkan dump id✓
-WHATSAPP 081234785443✓
+Email : waylesiopat@gmail.com✓
 GitHub >> wayle-77✓
 Facebook >> Wayle siopat✓
 ________________________________________________
